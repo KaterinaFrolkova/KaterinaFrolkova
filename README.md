@@ -4,7 +4,7 @@ I'm junior Data Analyst with 9+ years experience as Sales Analyst in the pharmac
 Contacts:
  * Facebook:
  * Instagram:
- * Telegram:[t.me/katerina_frolkova]
+ * Telegram:(t.me/katerina_frolkova)
 
 
 
