@@ -1,5 +1,5 @@
 ### Hi everybody👋
-I'm junior Data Analyst with 9+ years experience as Sales Analyst in the pharmaceutical field
+I'm Data Analyst. Before I switched to Data Analysis, I worked as Sales Analystnd for almost 10 years.
 
 Contacts:
  * Telegram: [t.me/katerina_frolkova](https://t.me/katerina_frolkova)
